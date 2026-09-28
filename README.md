@@ -1,0 +1,1 @@
+# .north-giza-privacy-policy
